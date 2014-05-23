@@ -11,8 +11,9 @@
 
 ## Instructions
 
-1. Preheat oven.
+1. Preheat oven to 375 degrees f
 2. Cream together the butter and sugar together until light and fluffy (about 3 minutes).
 3. Whisk together the cornstarch, baking powder, and water until smooth. Mix into the creamed batter.
 4. Stir in the flour then the chocolate chips until combined.
-5. Bake until just lightly browned on the edges and middle still looks undercooked.
+5. Bake until just lightly browned on the edges and middle still looks undercooked. 8-10 min 
+6. Serve cookies fresh out the oven on a warmed plate with a glass of ice cold milk 
