@@ -6,8 +6,10 @@
 - 1 cup sugar
 - 1 tsp cornstarch
 - 1/2 tsp baking powder
+- Rum!
 - 3 TBSP water
 - 1 cup + 2 TBSP all-purpose flour
+- A pinch of sparkle and pizzaz
 
 ## Instructions
 
