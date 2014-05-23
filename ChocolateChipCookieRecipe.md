@@ -9,7 +9,6 @@
 - 3 TBSP water
 - 1 cup + 2 TBSP all-purpose flour
 - 1/2 cup walnuts (halves, not crushed) 
-- 
 
 ## Instructions
 
