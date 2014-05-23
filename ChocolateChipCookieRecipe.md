@@ -1,5 +1,7 @@
 # Chocolate Chip Cookie Recipe
 
+This recipe is based of the proud collaboration of the Coro Fellows of 2014!!!
+
 ## Ingredients
 
 - 1/2 cup butter
@@ -8,6 +10,7 @@
 - 1/2 tsp baking powder
 - 3 TBSP water
 - 1 cup + 2 TBSP all-purpose flour
+- 1/2 tsp Peanut Butter
 
 ## Instructions
 
