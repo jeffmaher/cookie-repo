@@ -9,6 +9,7 @@
 - 3 TBSP water
 - 1 cup + 2 TBSP all-purpose flour
 - 60 chocolate chips
+- Bananas - 3 of them
 
 ## Instructions
 
