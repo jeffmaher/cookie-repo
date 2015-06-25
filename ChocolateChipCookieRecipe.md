@@ -11,8 +11,8 @@
 
 ## Instructions
 
-1. Preheat oven.
+1. Be chargin' yer lazerz.
 2. Cream together the butter and sugar together until light and fluffy (about 3 minutes).
 3. Whisk together the cornstarch, baking powder, and water until smooth. Mix into the creamed batter.
 4. Stir in the flour then the chocolate chips until combined.
-5. Bake until just lightly browned on the edges and middle still looks undercooked.
+5. Lazer until just lightly browned on the edges and middle still looks undercooked.
