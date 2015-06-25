@@ -4,6 +4,7 @@
 
 - 1/2 cup butter
 - 1 cup sugar
+- 1 cup chocolate chips
 - 1 tsp cornstarch
 - 1/2 tsp baking powder
 - 3 TBSP water
@@ -16,3 +17,4 @@
 3. Whisk together the cornstarch, baking powder, and water until smooth. Mix into the creamed batter.
 4. Stir in the flour then the chocolate chips until combined.
 5. Bake until just lightly browned on the edges and middle still looks undercooked.
+6. Enjoy with large glass of milk.
