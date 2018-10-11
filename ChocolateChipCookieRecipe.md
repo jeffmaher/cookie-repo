@@ -4,7 +4,7 @@
 
 - 1 cup butter
 - 1 cup sugar
-- 1 tsp cornstarch
+- 1 tbsp cornstarch
 - 1/2 tsp baking powder
 - 3 TBSP water
 - 1 cup + 2 TBSP all-purpose flour
