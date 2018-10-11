@@ -2,7 +2,7 @@
 
 ## Ingredients
 
-- 1 cup butter
+- 1/4 cup butter
 - 1 cup sugar
 - 1 tbsp cornstarch
 - 1/2 tsp baking powder
