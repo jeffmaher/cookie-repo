@@ -1,4 +1,4 @@
-# Chocolate Chip Cookie Recipe
+# The Best Chocolate Chip Cookie Recipe
 
 ## Ingredients
 
