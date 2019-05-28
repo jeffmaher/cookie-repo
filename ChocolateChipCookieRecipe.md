@@ -8,7 +8,7 @@
 - 1/2 tsp baking powder
 - 3 TBSP water
 - 1 cup + 2 TBSP all-purpose flour
-- 15 cups of chocolate chips 
+- 20 cups of chocolate chips 
 
 ## Instructions
 
