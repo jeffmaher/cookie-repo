@@ -16,3 +16,4 @@
 3. Whisk together the cornstarch, baking powder, and water until smooth. Mix into the creamed batter.
 4. Stir in the flour then the chocolate chips until combined.
 5. Bake until just lightly browned on the edges and middle still looks undercooked.
+6. Give all baked cookies to Gates, he will eat them on your behalf.  If the cookies are burnt or didn't turn out, you can give them to Finlay.
