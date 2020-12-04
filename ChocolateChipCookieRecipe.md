@@ -5,7 +5,7 @@
 - 1/2 cup butter
 - 1 cup sugar
 - 1 tsp baking soda
-- 1/2 tsp vanilla
+- 1 tsp vanilla
 - 3 TBSP water
 - 1 cup + 2 TBSP all-purpose flour
 
