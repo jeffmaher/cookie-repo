@@ -10,6 +10,7 @@
 - 1 cup + 2 TBSP all-purpose flour
 - 1/2 cup semi sweet chocolate chips
 - 1/2 cup salted caramel chips
+- 8 raisins
 
 ## Instructions
 
