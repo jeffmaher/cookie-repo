@@ -8,6 +8,8 @@
 - 1/2 tsp baking powder
 - 3 TBSP water
 - 1 cup + 2 TBSP all-purpose flour
+- 1/2 cup semi sweet chocolate chips
+- 1/4 cup salted caramel chips
 
 ## Instructions
 
