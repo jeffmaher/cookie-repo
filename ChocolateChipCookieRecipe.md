@@ -6,8 +6,9 @@
 - 1 cup sugar
 - 1 tsp cornstarch
 - 1/2 tsp baking powder
-- 3 TBSP water
+- 3 TBSP milk
 - 1 cup + 2 TBSP all-purpose flour
+- 1/2 cup Peanut butter
 
 ## Instructions
 
