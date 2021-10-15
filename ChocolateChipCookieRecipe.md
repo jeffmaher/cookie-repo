@@ -1,14 +1,14 @@
-# Chocolate Chip Cookie Recipe
+# HALLOWEEN Scary Chip Cookie Recipe
 
 ## Ingredients
 
-- 1/2 cup butter
-- 1 cup sugar
-- 1 tsp cornstarch
-- 1/2 tsp baking powder
-- 3 TBSP water
-- 1 cup + 2 TBSP all-purpose flour
-- 300 lbs. dark chocolate chips
+- 1/2 cup butter knives
+- 1 cup sugar do do do do do dooooo ah honey honey
+- 1 tsp children of the cornstarch
+- 1/2 tsp baking gun powder
+- 3 TBSP boil water advisory
+- 1 cup + 2 TBSP all-purpose day of the triffids flowers
+- 300 lbs. are you afraid of the dark chocolate chips
 
 ## Instructions
 
