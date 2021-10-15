@@ -8,7 +8,7 @@
 - 1/2 tsp baking powder
 - 3 TBSP water
 - 1 cup + 2 TBSP all-purpose flour
-- 300 lbs. dark chocolate chips
+- Bag of chocolate chips
 
 ## Instructions
 
